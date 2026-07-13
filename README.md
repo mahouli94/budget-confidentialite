@@ -1,4 +1,4 @@
-# Politique de confidentialité — Budget Perso
+# Politique de confidentialité — Dimvo Budget
 
 Page publiée : https://mahouli94.github.io/budget-confidentialite/
 
